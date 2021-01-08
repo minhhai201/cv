@@ -1,2 +1,2 @@
-# Resume-CV-Design-19m20
+# Trương Lê Minh Hải
 How to create the Resume CV Design
